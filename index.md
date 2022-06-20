@@ -1,2 +1,0 @@
-# Wonchan Choi, PhD
-Welcome! 
